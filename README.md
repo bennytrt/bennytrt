@@ -20,3 +20,8 @@ https://dsc.gg/crml
 
 
 -- Use Novaline for the best experience https://wearedevs.net/d/Novaline
+
+pastebin : https://pastebin.com/u/bennytrt2
+my snapchat = youreaveragecum
+
+my youtube is : https://www.youtube.com/channel/UC4pCBettm9x5d77Aef0qF-Q
